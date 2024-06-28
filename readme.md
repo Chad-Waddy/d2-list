@@ -10,3 +10,4 @@ idk put some other stuff here ig ++++++
 ++++++++
 =======
 _______
+when you get good you show your talents here as well ie diffrent styles and what ever
